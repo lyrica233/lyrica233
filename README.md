@@ -1,1 +1,1 @@
-Lyrica Prismriver, Ghostly Keyboardist
+Lyrica Prismriver, Poltergeist Keyboardist
